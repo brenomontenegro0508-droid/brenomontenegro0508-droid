@@ -1,6 +1,4 @@
-## Hi there 👋
-
-versao portugues 
+versão em portugu
 
 # Ascensão de Breno: Último Herdeiro
 
