@@ -1,6 +1,6 @@
 versão em portugu
 
-# Ascensão de Breno: Último Herdeiro
+# Ascensão do Jourigan: Último Herdeiro
 
 ## Sobre o Projeto
 
